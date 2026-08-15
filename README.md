@@ -19,7 +19,7 @@
 <br br br>
 <br br br>
 <br br br>
-bruce/kiian
+Bruce/Kiian
 <br br br>
 <br br br>
 17, he/him strictly
@@ -44,7 +44,7 @@ if I make you uncomfortable in any way let me know.
 
 </details>
 
-<a href="https://gothamsbat.straw.page/">strawpage</a>
+<a href="https://gothamsbat.straw.page/">STRAWPAGE</a> <a href="https://https://battishxx.atabook.org/">ATABOOK</a>
 
 <img
   src="https://github.com/user-attachments/assets/86f66306-ff31-454e-8dbf-c6c2eb5d406f"

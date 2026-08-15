@@ -49,6 +49,6 @@ if I make you uncomfortable in any way let me know.
 <img
   src="https://github.com/user-attachments/assets/86f66306-ff31-454e-8dbf-c6c2eb5d406f"
   alt="Project Screenshot"
-  width="300"
+  width="200"
   align="right"
 />

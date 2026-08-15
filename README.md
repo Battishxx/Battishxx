@@ -12,7 +12,7 @@
 <img
   src="https://github.com/user-attachments/assets/6ef75838-a9b5-427c-ba3e-992522c85c55"
   alt="Project Screenshot"
-  width="550"
+  width="500"
   align="left"
 />
 

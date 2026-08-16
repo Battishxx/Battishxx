@@ -44,7 +44,7 @@ if I make you uncomfortable in any way let me know.
 
 </details>
 
-<a href="https://gothamsbat.straw.page/">STRAWPAGE</a> <a href="https://https://battishxx.atabook.org/">ATABOOK</a>
+<a href="https://gothamsbat.straw.page/">STRAWPAGE</a>
 
 <img
   src="https://github.com/user-attachments/assets/86f66306-ff31-454e-8dbf-c6c2eb5d406f"

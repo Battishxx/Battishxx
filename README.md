@@ -8,7 +8,7 @@
 <br br br>
 <br br br>
 <br br br>
-Bruce/Kiian
+Bruce
 <br br br>
 <br br br>
 17, he/him strictly

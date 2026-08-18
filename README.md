@@ -33,6 +33,6 @@ if I make you uncomfortable in any way let me know.
 
 </details>
 
-<a href="https://gothamsbat.straw.page/">STRAWPAGE</a> <a href="https://https://battishxx.atabook.org/">ATABOOK</a> 
+<a href="https://gothamsbat.straw.page/">STRAWPAGE</a> <a href="https://battishxx.atabook.org">ATABOOK</a> 
 
 <img src="https://files.catbox.moe/iies8v.png" alt="made by muzzledpup" width="200" align="right" />

@@ -11,7 +11,7 @@
 Bruce
 <br br br>
 <br br br>
-18yo, he/him strictly
+18, he/him strictly
 <br br br>
 <br br br>
 <details>
